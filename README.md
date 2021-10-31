@@ -1,4 +1,4 @@
-*Scared, Akatsuki Creator*.
+*Bios, Akatsuki Creator*.
 
  ────────────────────────────
 
